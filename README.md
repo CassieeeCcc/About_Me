@@ -1,5 +1,4 @@
-# Hi, I'm CASSIE CHAN QING JIA ![wave](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)
-
+# Hi, I'm CASSIE CHAN QING JIA ![wave](https://www.pinterest.com/pin/spy-x-family-spy-family-loid-gif-spy-x-family-spy-family-loid-spy-family-discover-share-gifs--775252523367524445/)
 ## Description
 I'm on my journey to become a **software / gaming developer**.  
 Besides that, I also hope to pursue my **Master’s in Cyber Security** in the future.  
