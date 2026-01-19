@@ -1,4 +1,4 @@
-# Hi, I'm CASSIE CHAN QING JIA <img src="https://www.pinterest.com/pin/spy-x-family-spy-family-loid-gif-spy-x-family-spy-family-loid-spy-family-discover-share-gifs--775252523367524445/" width="64" height="64" />
+# Hi, I'm CASSIE CHAN QING JIA <img src="https://media1.tenor.com/m/xeqNx8ZDfnAAAAAd/spy-x-family-spy-family-loid.gif " width="64" height="64" />
 ## Description
 I'm on my journey to become a **software / gaming developer**.  
 Besides that, I also hope to pursue my **Master’s in Cyber Security** in the future.  
